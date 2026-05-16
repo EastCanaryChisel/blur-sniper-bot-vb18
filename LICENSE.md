@@ -1,4 +1,4 @@
-# 
+# high-frequency blur sniper bot | floor-sweeping + stop-loss offers the most advanced blur sniper bot, with floor-sweeping and stop-loss. Ideal for professional NFT traders and
 
 
 
